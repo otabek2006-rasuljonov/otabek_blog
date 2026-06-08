@@ -1,0 +1,1 @@
+YO salom, bu blog
